@@ -2,7 +2,7 @@
 
 ## About Me
 
-Hi, I am **Ashwini Pendkar**, a motivated and versatile individual with a passion for learning and a commitment to delivering high-quality results. I have a positive attitude and a growth mindset, and I'm always eager to take on new challenges. I am ready to make a meaningful contribution and achieve great things.
+Hi, I am **Shubham Sakhare**, a motivated and versatile individual with a passion for learning and a commitment to delivering high-quality results. I have a positive attitude and a growth mindset, and I'm always eager to take on new challenges. I am ready to make a meaningful contribution and achieve great things.
 
 ## Skills
 
